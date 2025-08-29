@@ -101,5 +101,5 @@ Built For All 컨설팅 프로젝트 참관 및 실무 체험 기회를 제공�
 
 ---
 
-*© 2024 모두에게 유연한 공간만들기 (Built Flexible Spaces for All). All rights reserved.*  
+*© 2025 모두에게 유연한 공간만들기 (Built Flexible Spaces for All). All rights reserved.*  
 *Powered by Built For All*
